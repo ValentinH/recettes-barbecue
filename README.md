@@ -8,6 +8,7 @@
 1. frotter le magret avec du gros sel sur les deux faces puis laisser reposer pendant **30 minutes**
 1. retirer le surplus de sel
 1. dans un petit bol, mélanger une cuillère à soupe d'huile d'olive, une cuillère à soupe de miel, 5-10 pincées de poivre, une cuillère à café d'herbes de Provence
+1. badigeonner les deux faces du magret avec cette sauce à l'aide d'un pinceau
 1. laisser reposer **30 minutes**
 1. passer à la cuisson
 
